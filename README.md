@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abhisek Mahato
 - 👀 I’m interested in Stock Market, Online Trading, Board Games..
-- 🌱 I’m currently pursuing Bachelors' in Business Administration
+- 🌱 I’m pursuing Bachelors' in Business Administration
 - 💞️ My favourite game is GOLF
 - 📫 How to reach me .. Mail me at mahat0.bonny@gmail.com
